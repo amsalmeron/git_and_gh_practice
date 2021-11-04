@@ -1,1 +1,1 @@
-I wish to create something that people will appreciate because of the impact it has on their live. This is my motivation, impact peoples lives for the better.
+My motivation is to create something that can impact peoples lives for the better. This is my extrinsic motivation. Intrinsic motivation would be to chase greater freedoms.  
