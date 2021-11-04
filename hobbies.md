@@ -1,0 +1,4 @@
+Snowboarding
+Hiking
+Sports
+Snokling
